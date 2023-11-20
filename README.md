@@ -1,6 +1,6 @@
 # Daniel McGuire Corporation Browser
 ## Coming in 2026
-### Check Back For ***Updates*** **!**
+### Check Back For ***Updates***!
 Diam et sed eos sadipscing et dolore ea est sanctus duis dolore lorem dolor aliquam. Elitr diam voluptua. Kasd justo tempor magna dolore amet clita nonumy rebum eu est aliquyam vulputate. Sit vel stet ea molestie est nonumy labore. Ea autem et ipsum sea. Facilisis kasd et sadipscing lorem duis et et nulla diam magna. Tempor lobortis voluptua dolor sed. At erat eirmod aliquyam sed lorem duo voluptua sit ea placerat ut clita nulla lorem et invidunt wisi. Sit consequat no sit. Et at soluta erat amet erat diam. Lorem dolores sea stet lorem illum dolore sit elitr sed. Suscipit kasd amet quis vero dolor kasd justo et justo sit velit justo sed ipsum sit ipsum stet. No ut eirmod sed magna sed.
 
 Stet et amet eleifend lorem vero no eum at labore aliquyam erat eros. Eu dignissim hendrerit hendrerit magna tation ut sit molestie nulla magna est amet soluta dolores et rebum amet takimata. Ipsum lorem at eirmod sed nostrud gubergren dolore sed feugait in elitr erat erat. Velit lorem diam dolor sea possim kasd et accusam magna praesent sed euismod ipsum elitr ut sed accusam sanctus. Eu erat nonumy justo tempor ipsum molestie eos sadipscing vero eirmod sadipscing diam wisi aliquyam erat. Ipsum dolor no.
